@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...學生
 - 📫 How to reach me ...113b06011@mailst.cjcu.edu.tw
 - 😄 Pronouns: ...he/him
-- ⚡ Fun fact: ...讚喔
+- Pass Module 2 Knowledge Check
 - Former internship unit...台南航空站實習、亞洲航空實習
 -Previously obtained a license...ESG證照、航空訂位證照
 <!---
